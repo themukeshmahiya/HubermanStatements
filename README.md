@@ -1,2 +1,2 @@
 # Huberman Statements
-Collections of Statements that are discussed in Huberman Podcast
+Collections of Conclusion that are discussed in Huberman Podcast
