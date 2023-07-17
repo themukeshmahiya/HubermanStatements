@@ -6,3 +6,4 @@
    * low level walking
    * great slow level sleep
 4. when we have adrenaline rush in our body then we feel less pain for same injury we will get more pain if we d not have any adrenaline flow the time of injury happens
+5. if we think about things or animal or human that we love we exprience less pain than actual pain
